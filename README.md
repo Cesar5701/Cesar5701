@@ -13,5 +13,3 @@ Mi camino está trazado hacia convertirme en un analista de datos, evolucionando
 
 👥 Trabajo en Equipo:
 Aunque disfruto trabajar de manera individual, valoro las oportunidades de colaborar y aprender de otros. Estoy abierto a participar en proyectos de equipo que me permitan expandir mis horizontes y contribuir al éxito colectivo.
-
-Ver otra presentación
